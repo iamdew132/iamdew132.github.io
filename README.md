@@ -1,2 +1,2 @@
-# canofdew132.github.io
+# iamdew132.github.io
 My funny website :33333
